@@ -1,1 +1,1 @@
-# bubble-shooter-app-ads
+google.com, pub-5199230491287459, DIRECT, f08c47fec0942fa0
